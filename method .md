@@ -1,0 +1,2 @@
+And your cooking method  is here
+ add the pieces of mango into blender and add 1 cup of water into it . Blend smooth.Add 1/4  cornflour and 1/3 of water into mango mixture Mix well and Pour the mix to the  pan when it become little hot add 1/4 teaspoon of salt and 1/4 cup of sugar Cook unil it boil and when it become thicken . add the mixture into the bowl and  Cool down for 5 minutes Keep infridge for 1 hour garnish you dessert and your mango pudding is ready  
